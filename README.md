@@ -1,2 +1,2 @@
 # my-son-s-code
-What my son's do when he get my computer 👶
+What my son's does when he get my computer 👶
